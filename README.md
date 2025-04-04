@@ -1,1 +1,1 @@
-3D Print Files for random projects i'm wokring on.
+3D Print Files for random projects I'm working on.
